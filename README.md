@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-gfnyeodoCLM/WMrSGmsY--I/AAAAAAAACCI/gXG7R5BlH98SmKfybKWOLoCEilJdXyc0wCLcB/s1600/Violet%2BEvergarden%2B1.jpg)](https://canhphu)
+[![MasterHead](https://i.pinimg.com/originals/99/62/a0/9962a0d5c64a19441a5019d70b5acc8b.jpg)](https://canhphu)
 <h1 align="center">Hi 👋, I'm Phu</h1>
 <h3 align="center">A student with an interested in AI</h3>
 
