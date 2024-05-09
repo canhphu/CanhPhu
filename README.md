@@ -1,4 +1,4 @@
-[![MasterHead](https://media.tenor.com/nWK2SSJEaP4AAAAC/bocchi-the-rock-bocchi-the-rock-gif.gif)](https://canhphu)
+[![MasterHead](https://image.myanimelist.net/ui/5LYzTBVoS196gvYvw3zjwHP3hetS_Ytm8aI68DQbZdE)](https://canhphu)
 <h1 align="center">Hi 👋, I'm Phu</h1>
 <h3 align="center">A student with an interested in AI</h3>
 
